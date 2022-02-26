@@ -4,7 +4,7 @@
 💻 I'm working as an intern Business-analyst at Naumen 🖊
 ⌨ My interests in IT: C#-developing, Game-Developing, Frontend-Developing and Business\System Analysis. 🖥
 
-🔸 My hobby: 📹video editing💻, ⚽footbal⛹️‍♀️, 📒english🖊 and more other activity 🔸
+🔸 My hobby: 📹video editing💻, ⚽football⛹️‍♀️, 📒english🖊 and more other activity 🔸
 🔹 My social sites: 🔹
 1) 🔴 VKontakte: http://vk.com/angelinashkatova 🔴
 2) 🟡 Instagram: http://instagram.com/_angelina_shkatova_ 🟡
