@@ -1,7 +1,7 @@
 👋 Hello, everyone! I'm Angelina Shkatova. I'm 19 years old. 🦋
 ✈ I moved from Chelyabinsk to Ekaterinburg. 🚀
 📚 I'm studing at Ural Federal University in IT-program. 🎓
-💻 I'm working as an intern Business-analyst at Naumen 🖊
+💻 I'm working as a junior Business-analyst at Naumen 🖊
 ⌨ My interests in IT: C#-developing, Game-Developing, Frontend-Developing and Business\System Analysis. 🖥
 
 🔸 My hobby: 📹video editing💻, ⚽football⛹️‍♀️, 📒english🖊 and more other activity 🔸
